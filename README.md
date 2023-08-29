@@ -1,6 +1,6 @@
 # Reeborgs_World_Hurdle_3
 
-![image](https://github.com/drashtee-parmar/Reeborgs_World_Hurdle_3/assets/92812999/ce542344-5dd0-46f8-a297-0c6d4d4d5d5f)
+![image](https://github.com/drashtee-parmar/Reeborgs_World_Hurdle_3/assets/92812999/aaa1312b-a48d-4bd0-be68-bf8b83a1977a)
 
 ## Resources
 
